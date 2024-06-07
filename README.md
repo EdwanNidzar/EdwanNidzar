@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nidzaredwan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TDk2Gm3exXa9knMmMsONC-UhmJLU0BkW/view?usp=sharing](https://drive.google.com/file/d/1TDk2Gm3exXa9knMmMsONC-UhmJLU0BkW/view?usp=sharing)
+- 📄 Know about my experiences [Portofolio](https://my-portofolio-ashen-rho.vercel.app/)
 
 - ⚡ Fun fact **Like a lot manga**
 
